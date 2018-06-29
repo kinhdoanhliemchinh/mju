@@ -1,0 +1,2 @@
+Bệnh càng tiến triển, khớp cổ tay càng bị thoái hóa thì người bệnh càng khó thực hiện các động tác cầm nắm đồ vật hoặc khó có thể tự mình thực hiện các hoạt động sinh hoạt cá nhân, thậm chí có thể bị teo cơ, biến dạng khớp.
+https://chuabenhkhoptambinh.wordpress.com/2018/06/29/benh-cang-tien-trien-khop-co-tay-cang-bi-thoai-hoa-thi-nguoi-benh-cang-kho-thuc-hien-cac-dong-tac-cam-nam-do-vat-hoac-kho-co-the-tu-minh-thuc-hien-cac-hoat-dong-sinh-hoat-ca-nhan-tham-chi-co-the-bi-3/
